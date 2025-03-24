@@ -2,5 +2,4 @@
 
 ### Guillermo Salaberry
 
-![presentacion1.png][C:\Users\guill\OneDrive\Imágenes]
-
+![presentacion1](file:///C:/Users/guill/OneDrive/Im%C3%A1genes/presentacion1.png)

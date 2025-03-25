@@ -7,3 +7,9 @@
 Vivo en campana provincia de Buenos aires 
 
 *soy estudiante de **Ingenieria en sistemas de informacion** ademas de dedicarme deportivamente al running dentro del tiempo que puedo , tengo 3 perros salchicas y me tomo el tiempo de cuidarlos a diario*
+
+pasatiempos favoritos 
+
+-entrenar 
+-leer dentro del tiempo libre que puedo de ciencia ficcion
+-jugar videojuegos

@@ -11,5 +11,7 @@ Vivo en campana provincia de Buenos aires
 pasatiempos favoritos 
 
 1.entrenar 
+
 2.leer dentro del tiempo libre que puedo de ciencia ficcion
+
 3.jugar videojuegos

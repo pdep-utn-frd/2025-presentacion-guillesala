@@ -2,5 +2,4 @@
 
 ### Guillermo Salaberry
 
-![guille](presentación1.png
-)
+![guille](presentación1.png)

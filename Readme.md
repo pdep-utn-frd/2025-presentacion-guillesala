@@ -10,8 +10,8 @@ Vivo en Campana provincia de Buenos Aires
 
 Pasatiempos favoritos 
 
-1.Entrenar 
+1. Entrenar 
 
-2.Leer dentro del tiempo libre que puedo de ciencia ficcion
+2. Leer dentro del tiempo libre que puedo de ciencia ficcion
 
-3.Jugar videojuegos
+3. Jugar videojuegos

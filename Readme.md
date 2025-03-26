@@ -4,14 +4,14 @@
 
 ![foto](461703693_549831467498084_7438535624405054278_n.jpg)
 
-Vivo en campana provincia de Buenos aires 
+Vivo en Campana provincia de Buenos Aires 
 
-*soy estudiante de **Ingenieria en sistemas de informacion** ademas de dedicarme deportivamente al running dentro del tiempo que puedo , tengo 3 perros salchicas y me tomo el tiempo de cuidarlos a diario*
+*Soy estudiante de **Ingenieria en sistemas de informacion** ademas de dedicarme deportivamente al running dentro del tiempo que puedo , tengo 3 perros salchicas y me tomo el tiempo de cuidarlos a diario.*
 
-pasatiempos favoritos 
+Pasatiempos favoritos 
 
-1.entrenar 
+1.Entrenar 
 
-2.leer dentro del tiempo libre que puedo de ciencia ficcion
+2.Leer dentro del tiempo libre que puedo de ciencia ficcion
 
-3.jugar videojuegos
+3.Jugar videojuegos

@@ -6,7 +6,7 @@
 
 Vivo en Campana provincia de Buenos Aires 
 
-*Soy estudiante de **Ingenieria en sistemas de informacion** ademas de dedicarme deportivamente al running dentro del tiempo que puedo , tengo 3 perros salchicas y me tomo el tiempo de cuidarlos a diario.*
+*Soy estudiante de **Ingenieria en sistemas de informacion** ademas de dedicarme deportivamente al running dentro del tiempo que puedo , tengo 3 perros salchichas y me tomo el tiempo de cuidarlos a diario.*
 
 Pasatiempos favoritos 
 
